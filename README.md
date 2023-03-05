@@ -1,1 +1,0 @@
-# Problema-sir-de-numere
